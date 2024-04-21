@@ -1,4 +1,4 @@
-## Epic super master project 3001 can only be viewed by epic super masters, if you are not an epic super master plz click the image below.
+## Epik sooper mester projekt 3001 ken only be veewed by epik sooper mesters, if yoo ar not an epik sooper mester ples click the imaj bellow to becum one.
 
 <div align="left">
       <a href="https://www.youtube.com/watch?v=COWcBfLKbyw">
